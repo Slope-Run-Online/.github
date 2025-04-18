@@ -5,6 +5,8 @@
 ### **Introduction**
 Looking for an **epic speed game** that keeps your adrenaline pumping? **Slope Unblocked** is your go-to challenge! It’s a blazing-fast **3D runner** where you control a rolling ball down a neon slope full of deadly twists, shadow obstacles, and mind-blowing speed boosts. And the best part? It's **completely free**, **unblocked**, and ready to play right in your browser!
 
+## <a href="https://tinyurl.com/5f6adzwf">👉 Click To Play Slope Unblocked 👈</a>
+
 ---
 
 ### 🎮 **What Is Slope Unblocked?**
